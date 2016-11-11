@@ -1,1 +1,1 @@
-Will be added soon
+all details UP
